@@ -1,1 +1,0 @@
-# ikahramankaptan.github.io
